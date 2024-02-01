@@ -1,0 +1,1 @@
+This Project is about different kinds of wild animals, their discriptions and how they cope in nature.  
